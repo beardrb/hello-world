@@ -1,4 +1,4 @@
 # hello-world
 new ideas
 Jesus is Lord!
-Kind of the Universe!
+King of the Universe!
